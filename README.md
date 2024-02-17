@@ -1,1 +1,1 @@
-**NOTE:** This is a joke that has no real importance and may not last forever. You can view the website at [coffee.scyted.tv](https://coffee.scyted.tv/).
+**NOTE:** This is a joke webpage that has no real importance and may not last forever. For shits and giggles, we created a fake little wikiHow-type website where people could learn how to make Coffee. Everyone makes their coffee differently, so take these instructions with a grain of salt. You can view the website at [coffee.scyted.tv](https://coffee.scyted.tv/) if you so please.
